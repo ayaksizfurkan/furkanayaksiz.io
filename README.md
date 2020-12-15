@@ -1,2 +1,0 @@
-# furkanayaksiz.io
-for apps
